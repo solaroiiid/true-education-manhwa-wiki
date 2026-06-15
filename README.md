@@ -1,4 +1,4 @@
-here # True Education Manhwa Wiki
+# True Education Manhwa Wiki
 
 A fan-made wiki for the **True Education** manhwa.
 
