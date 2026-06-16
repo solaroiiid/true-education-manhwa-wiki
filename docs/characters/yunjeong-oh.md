@@ -1,0 +1,11 @@
+Appearing in s1, ep.63. She is Yujeong's younger sister. Has an abusive father that sexual abuse her. Her mother abandoned them.
+
+In the past, her sister left when she was in first year of middle school. Then she also ran away from her abusive father. Somepoint later, after her older sister was sent to prison, they shared letters to each other for 6 months. Then she sent her last one two months ago and found a runaway family. Although she was told to not follow any male helpers, she did so if the helper was a woman.
+
+During those times, she was deceived and threatened by Hyangmi. She tried to run away but was caught and is beaten. After, she was forced to "work" again and sees policemen and wanted to call them but were scared of men due to her father. Then she went into karaoke and met Hwajin. She was calm but when he expose his reasoning, she became afraid that he may be working with her father and ran. She gets into a taxi but the driver found out she wasn't paying so he stops. He then wants to have sex with her as payment which she ran quickly. She went to a place alone but was found and comforted by Yeri.
+
+The next day, she stays at the TRPA Youth Center while meeting her old runaway and welcomes them. While she listens of Yuri's story about her sister living comfortably, and though about prison will be a better place to live. Then she gets a message from Hyangmi's threatening message and came. Howver, she attempts to kill Hyangmi to get into prison and chases her. She stops when Yeri persuaded her out of it. Afterwards, she appears in front of her father and will expose him of his heinous deeds. This causes him to assault but was stopped by Hyangmi.
+
+Now, she is happy and is going to a new school and sent a letter about it to her sister. In episode 111, she appears to have gone to the same high school as Juhui Lee, and they became friends.
+
+In season 2, she was targeted and beaten by Mari's TRPA challenge. Was hospitalized but assures Hwajin to not be concern that they were assaulted due to the challenge.

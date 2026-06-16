@@ -1,0 +1,13 @@
+Appearing in s2, ep.186. He is Busan Branch Manager. He controls Proxy Deposit Services and is the leader of Gyowongwuk. His tattoo is on his back.
+
+When he was given the loan shark business by Yungyeol, he was fine with it but concern as his team is too sloppy to run it. Was then told to recruit Changseong to teach him how to.
+
+He attended the brach manager meeting.
+
+Later, he is the culprit that masterminded Changseong Kang's involvement back into crime and the loan shark activity. Prior, following Yungyeol's advice, takes in Changseong in order to learn the cell based system from him for his proxy deposit plan. He is then seen relaxing with others as they watch their vicitms suffer. However, he sees Sera, disguised as Seoah, provoking him by messing with his collectors for a week and directly tells him to find her.
+
+Thinking, he asks someone or chatgpi to determine if Sera is Seoah or not. After confirming is not Seoah, he then compare if the picture is Sera which was confirmed. He then states he will become the leader of GY once finding out TRPA targeted him. However, he actually don't care about being the boss and only money so he decides to lay low for a while. Soon, he discovers his revenue is low as TRPA knows his method weakness. He then goes to his car but finds Sera wrecked it. He attempts to bribe Sera but is punched as she doesn't need his money as she relies on his father's fortune.
+
+As the public watches them, he then ask to go somewhere else which Sera agrees. He then ask how TRPA target his method weakness. Sera explains while making fun of his appearance. His second question was where is Hwajin but Sera says Hwajin is not bothered to deal with him. They fight in an even stalmate with him realzing Sera went rogue. He lands a punch to her head but this broke his hand and is punched into the ocean. He was forced to spill the HQ location but was saved by reinforcements. Back at his place, he attempts to grab his money and plans to flee out of South Korea due to Hwajin coming for him. He monologues he will come back but then hears someone whom was Hwajin and is beaten.
+
+Awaken, Hwajin wants his assets but he attempts to bribe him with GY info as he has no loyalty but was refused. His assets were counted and soon realize Hwajin wanted him to go to the HQ and bring the money; handling the victims and GY. He reluctantly cooperates as he attempts to bring down everyone since he is going to be arrested. He sees the door changed which was odd and then enters in pretending to be in distress but was horrified to see the other branch managers beaten and hunged. Ten minutes later, an explosion occured and he is pushed back. Trapped, he helps TRPA puts out the fire. After, he was arrested.

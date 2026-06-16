@@ -1,0 +1,3 @@
+A child who is in the sixth grade. Has a bum and absuive father who doesn't take care of him and treats him like a stranger. His mother will also beat him for the smallest things but left after a fight with the father. He would be too hungry and is forced to break the law when his father won't do anything. He understands he is breaking the law but the officer that met him didn't believe his situation and he later learn about the juvenile law that allows him to be free. Because of this, he soon takes advantage of the law for his own survival and later acculamate multiple crimes. Even though he was enrolled in Adam And Eve for a year, he didn't change due to the law and left.
+
+At the present, his father stole his 100,000 won after being release from the officers.

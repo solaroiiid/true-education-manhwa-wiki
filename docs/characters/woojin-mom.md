@@ -1,0 +1,26 @@
+Woojin's Mother is a former minor antagonist in season 1 of Get Schooled. She is a parent who abused teachers as she saw them as inferior and to use them to complain of everything.
+
+In the past, she did the same actions towards Jiseon to a store which she and her family were forced to move to another neighborhood.
+
+Prior, it was revealed that when her son was ordered to write a written apology, which was the first disposition in the course of the academic violence, she shifted the blame to Jiseon and began to take revenge out of spite when she lost the disposition.
+
+Prior, it was revealed that when her son was ordered to write a written apology, which was the first disposition in the course of the academic violence, she shifted the blame to Jiseon and began to take revenge out of spite when she lost the disposition.
+
+Plot Overview
+Get Schooled (Season 1)
+Hyeonjung Elementary Arc
+She met with Hanlim and talks bad about Jiseon which Hanlim oppose. She attempts to assault her by throwing ice at her but fails. In retaliation, she complains to the principal but it later backfired when Hanlim revealed who she was to him. When the school decides that teachers no need to cater for parents' calls or send texts mandatory, she ended up going into the school accompanied by other parents. She went to the principal's office but only sees Hwajin. They talk as she look down on public servants but Hwajin puts handcuffs on her and threatens that she will be subject to criminal punishment for obstruction of many crimes such as defamation as she abused too much.
+
+However, Hwajin only warned her for the time being. She was very upset and uploaded the content on her mom cafe, and most of the reactions were cold to her. Frightened by this, she goes to see Jiseon initially shows some remorse by offering her apology, but only if Jiseon admits fault first. She naturally refuses. She gets so angry and ends up using her last resort.
+
+The plan was to use her son Woojin to lead Jiseon to scold and assault her son and then record the situation. Woojin, angrily showed his disapproval but she threatens to beat him if he doesn't.She attached a tape recorder to his clothes and was secretly eavesdropping on the situation at the cafe, but the sound suddenly cut off and Woojin was hit. When she heard the sound, she ran straight to the classroom. What she saw in the classroom was Woojin sprawled on the floor with his nose bleeding. At this time, she does not worry about her son who was beaten and appears to be happy at the thought of her winning. And she immediately takes her picture and threatens Jiseon
+
+However, as it turned out, the person who hit Woojin was not a teacher but a student in the same class. Then every student turn against her when they hear her saying she attached a tape recorder to his clothes. She tries to run away, but Hwajin stops her, says that her teacher's charges were found not guilty and shows her the handcuffs.
+
+Hwajin was going to hand her over to the police but she asks for forgiveness to avoid the moment. She was instructed a last chance to apologize at the parent observation class to be held a week later. do. However, she still can't come to her senses, and thinking that it would be enough to manipulate the evidence and escalate it. She attempts to explot and lie by combining audio recordings and photos. However, before she posted her post, she was fully exposed and this content spread widely throughout all communities, leading to her being targeted for her abuse by other parents.
+
+Woojin's father, who found out about this, got angry and couldn't believe she kept doing this action and will divorced her if she did. She then changed the subject by making him at fault for not being a good worker by being denied a promotion. In the midst of her husband's fight, Woojin comes into her house after being beaten by students at her school because of this. Woojin gets angry and goes into his room, and the husband, who was angry also left. Filed with anger, her eyes became red and he shed tears in the empty living room.
+
+Eventually, when the parent observation day came, she did not attend at first, but showed up at the last minute. While she was trying to make a public apology in front of the parents, she was berated which she snapped as those parents also harrased Jiseon too. Which Jiseon intervened. In the end, seeing his mother coming to his school and behaving indecently, Woojin begging Hwajin to take his mother and make her human. She was then to be arrested as she is completely rejected, even by her son, she becomes distraught. Later, when Hanlim tries to call the police, she sobs and tears, unable to overcome her shock over the fact that she was abandoned by Woojin. However, when Jiseon came running and knelt down on her knees, wishing for Hwajin and Hanlim Lim to giver her another chance, only then did she truly kneel down and apologize to Jiseon Choi for everything she did.
+
+She later appears and greets Jiseon warmly, showing that she has been rehabilitated.

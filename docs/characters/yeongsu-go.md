@@ -1,0 +1,5 @@
+Appearing in s1, ep.17 A class 2-4, Korean History homeroom teacher. Has an unnamed wife.
+
+He was a caring person and trusted his students more than anyone else, but he was faced with a ridiculous report by Sohyung Kim that he had sexually harassed Yeri Han. After he caught Yeri smoking. He pleaded not guilty, but there was no proper investigation, saying he was concerned about secondary harm, and he ultimately committed suicide out of the sense of loss that he had been betrayed by the students he trusted.
+
+After he committed suicide due to false accusation, several students at Soyeon Girls' High filed a report to the TRPA, asking them to "punish Yeri for causing the Yeongsu's death," and Hanlim & Hwajin were dispatched. . And according to Hwajin's words, his wife, is still suffering from his death because of Yeri. In the end, Yeri's letter from prison relieved some of the pain.

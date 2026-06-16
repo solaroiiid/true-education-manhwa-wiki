@@ -1,0 +1,3 @@
+Appearing in s1, ep.43. A student of Sillabyeol Elementary.
+
+She first appears bragging that her father bought her pretty clothes at a department store. She seems to like to look pretty, and because of this, she is criticized and made fun of by other classmates that listened to Sanghee's beliefs, including Nayeong, as a discriminator. This puts her at odds with students who support Sanghee's beliefs. After Hwajin's intervention, she is shown supporting Somi's remarks. When Sanghee resigns, she writes a letter saying, 'Take care of yourself.'

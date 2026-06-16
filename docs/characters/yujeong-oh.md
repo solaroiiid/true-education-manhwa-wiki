@@ -1,0 +1,5 @@
+Appearing in s1, ep.63. In Cheongju Women's Prison as a juvie. She is Yunjeong's older sister. Has an abusive father that sexual abuse her. Her mother abandoned them.
+
+In the past, she ran away from home during her first year of high school and had caused an accidental murder, when the person that helpd her attempted to sexual assault her each day and hit her, she defended herself which led to his death. She was sent Cheongu prison and met Yeri. For the past 6 months, she and her sister sent letters each other after until Yunjeong ran away from home. Then she stopped sending letters which made her worried. The last letter she recieved was two months ago.
+
+At the present, she asked help from Yeri about this which in turn asked Hwajin. They met and explain what happened. In the end, she gets the good news about her sister. When Hyangmi shows up and is told she abused her sister, she angrily tells her to clean the floor with her tongue.

@@ -1,0 +1,1 @@
+He sexually harasses Hanlim and is punished for it. Later, at a drinking party with his co conspirators, he said he tried to pet Hanlim because he seemed like his own daughter. His whereabouts after the village head was arrested are unknown but he could be arreseted as well.
