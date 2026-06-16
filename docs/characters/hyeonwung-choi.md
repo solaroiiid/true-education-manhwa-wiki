@@ -1,0 +1,7 @@
+Appearing in s1, ep.22. A sophomore at Chukmyeong High School. His parents are dead and his grandfather makes a living by picking up waste paper, he is a bright child who has maintained a 3rd or 4th place in his school despite being in a disadvantaged environment.
+
+He has been subjected to relentless bullying by delinquent student Gwansik. That day too, Gwansik insulted Hyeonwung's grandfather and his poor status, leading to a fight. Afterwards, Sangyeol sees this and makes Hyeonwung apologize while insulting him which prompt Hyeonwung to grab the teacher and almost hits him just as Hwajin stops him. However, Hwajin assists Hyeonwung in punching Sangyeol. Then after, he orders Sangyeol, being punished as being a student, to clean up the windows as ordered by Hwajin.
+
+A bit after, he sees his grandfather was assaulted by Gwansik and his friends but he doesn't know it. As his grandfather tells him is alright. Then when Sangyeol apologizes to him as per his exam, Hyeonwung ignores him completely. Then at night, Sangyeol shows up and gives him the test usb but he also ignores it. Angered, he assaults and grab his finger to cheat his exam but Hwajin sees it. Hyeonwung leaves as Hwajin deals with Sangyeol.
+
+In season 2, he was targeted and beaten by Mari's TRPA challenge. Was hospitalized but assures Hwajin to not be concern that they were assaulted due to the challenge.

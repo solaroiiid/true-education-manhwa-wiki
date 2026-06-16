@@ -1,0 +1,3 @@
+Appearing in season 1, ep.2. A sophomore student and bully of class 2-5.
+
+he and Junhyeong bullies Byungsu severely. Currently, he forced Byungsu to drink soju. When Hwajin arrived, Hakjae was disorderly and tries to get Byungu in trouble but Hwajin saw through it and beats him. As soon as Kwangpil Ryu gets into trouble, he immediately cuts off Junhyung and bullies him. When Junhyeong's misdeeds were revealed, Hakjae was arrested along with Junhyeong. He had the audacity to say that he did nothing wrong and that Junhyeong ordered him to do it.

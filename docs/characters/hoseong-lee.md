@@ -1,0 +1,9 @@
+Appearing in s1, ep.7. A senior of Guun High Tech High and is part of the automotive department. Leads an automotive gang.
+
+He has been fighting with his gang for three years against Hongi's gang. Currently, he was fighting again and forces Hyungju to fight. In a gang meeting, he beats the members that wasn't performing good in fighting, including Hyungju. Hwajin shows up and beats him in one shot. He then sees Hongi's gang gets beaten. Hwajin then gives them a test and grades them in a class system. Hoseong scored worst so he was a peasant that has to obey Hyungju.
+
+He was forced to eat poor food and rebel but is defeated again. Angered, he threatens Hyeongju which resulted in being punished again. As being punished, he was talking to Hongi and they both realized that Gwanhyeok will be coming. When he though Hwajin was defeated by Gwonhyeok, he was pleased but is attacked by him for being weak. Gwonhyeok then explains how they will be leading a raid so they can replace Guun Mongal Army as their own version. However, Hwajin defeats Gwonhyeok which results in Hongi and the others to not follow him. For two weeks, he get along with Hoseung and the others as well. After Hwajin left, he and the others captured Hyeongju for a beating but Gwonhyeok stops them.
+
+Appears again in the Illegal gambling arc where he is addicted to gambling. He and Hongi showed Gwonhyeok the gambling site as told by G.Y but he turns him down.He was then afraid if TRPA will capture them. Later, he follows G.Y to locate their hide out and fights them when he brought Gwonhyeok. Although he was hesitant of fighting, he eventually assists Gwonhyeok. After, they chase Jonghyuk but Hoseong was knocked out when he threw a ball to his head. In the epilogue, he congrats Hyeonju of being hired by a mega corporation.
+
+Briefly seen in season 2 Brass Knuckle Assaults Arc when talking about the worst schools

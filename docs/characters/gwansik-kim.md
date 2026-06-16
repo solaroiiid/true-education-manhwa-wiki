@@ -1,0 +1,3 @@
+Appearing in s1, ep.22. A sophomore at Chukmyeong High.
+
+He steps on Hyeonwung's desk and orders him to clean the windows due to Sangyeol's orders. Then he insults his poor status and his family which results in a fight. Sangyeol sees this which Gwansik lied of what happened. Then much after, Sangyeol looks for him to do his dirty work but he doesn't want to anymmore until he was given a leaked test papers on a USB if he and his friends assault Hyeonwung's grandfather. However, Hwajin intervened and forces him to reveal the truth. Then when Sangyeol asked for his forgiveness, he instead beats him in anger as he repented himself and didn't like what he ordered him to do. He burns a small area of the paper as he forgives him in some sort of way and leaves.

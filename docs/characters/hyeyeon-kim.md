@@ -1,0 +1,3 @@
+Appearing in s1, ep.83. A student at Hyeonjung Elementary in Jiseon's class.
+
+When Hanlim disguised as her teacher and took over as temporary homeroom teacher instead of Jiseon, she was the first to show concern for Jiseon. Then, she heard of Woojin's mother had a tape recorder to Woojin. She was the first to notice Woojin's mom's brutality and criticizing her evil deeds. She later borrows her mother's account and posts a post exposing Woojin Mom's atrocities on the same mom cafe where Woojin Mom operates, making her evil deeds known.

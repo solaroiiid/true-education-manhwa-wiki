@@ -1,0 +1,3 @@
+The first high school Hwajin was assigned to is a co-educational school. The name of the school was not mentioned, and it was the school that won as the first case of the TRPA. The location of the school appears to be Manan-gu, Anyang-si, given that Mr. Kim, Kyeongmin's teacher, was nicknamed 'Manan-gu Golden Q Team' in the past. Later in season 2, it was revealed to be Manan High School
+
+In regards of Junhyung Ryu who has committed many crimes just because he is the son of a National Assembly member may had been referenced to real life where NO:EL, a South Korean rapper, has caused various accidents and is a son of a Nationaly Assembly member.

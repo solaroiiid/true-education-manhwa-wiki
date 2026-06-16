@@ -1,0 +1,9 @@
+Appearing in s1, ep.7. A senior of Guun High Tech High and is part of the electrician department. Leads an electrician gang.
+
+He has been fighting with his gang for three years against Hoseung's gang. Currently, he was fighting agai. In a meeting, he was lured by Hyungsu's rage bait and storms in onto be stopped by Hwajin. He knows him but attempts to leave but is provoked. Hongi attacks but is easily defeated. Hwajin then gives them a test and grades them in a class system. Hongi scored in the middle so he was a noble that wasn't really punished. A bit, he talks to Hoseong that Gwanhyeok is coming.
+
+When he though Hwajin was defeated by Gwonhyeok, he was pleased but is attacked by him for being weak. Gwonhyeok then explains how they will be leading a raid so they can replace Guun Mongal Army as their own version. However, Hwajin defeats Gwonhyeok which results in Hoseung and the others to not follow him. For two weeks, he get along with Hoseung and the others as well. After Hwajin left, he and the others captured Hyeongju for a beating but Gwonhyeok stops them.
+
+Appears again in the Illegal gambling arc where he is addicted to gambling from Jonghyuk. He and Hoseong showed Gwonhyeok the gambling site as told by G.Y but he turns him down. Somewhat afraid, he tried to coerced him again but is hit by Jonghyuk. Was kidnapped and waterflogged as he owe them a lot of money from the gambling. Then Jonghyuk tells him to help kill TRPA and his debt will be settled. However, he failed. In the epilogue, he congrats Hyeonju of being hired by a mega corporation.
+
+Briefly seen in season 2 Brass Knuckle Assaults Arc when talking about the worst schools.

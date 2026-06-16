@@ -1,0 +1,3 @@
+Appearing in s2 ep.139. Consists of Richard Daniel, his American father and unnamed Korean mother.
+
+Richard has caused domestic violence constantly at his home. With no choice, Hyeon shot him but he didn't die. Hyeon was reconnized as self defense but it appears his mother, although escaped her husband, was afraid of Hyeon. Saying that his actions was the same as his father. She left and went back to South Korea.

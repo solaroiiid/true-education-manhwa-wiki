@@ -1,0 +1,5 @@
+Appearing in s2, ep.139. Has a father. Lives in Gwanak. A student of Kangsan High and former student of Sanghwa Middle School.
+
+In the past, until his middle school days, he was good at fighting and reigned like a king, but he assaulted a student who bumped into him, resulting in 12 weeks medical leave. Because of this, he was at a loss because he could not get the settlement amount of 15 million won, so he visited Hyeontae, who saw him checking out his account, and he joined Hyuntae's organization after he graduatee.
+
+Currently, he is assaulting a citizen who bumped his shoulder. He takes off his top to show off his tattoos, and after being beaten by Sera, he is taken to the TRPA. After he was brought in, he revealed all information about Hyeontae's organization, and was later presumed to have been taken into police custody.

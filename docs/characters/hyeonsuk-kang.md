@@ -1,0 +1,5 @@
+Appearing in s1, ep.23. A math teacher at Chukmyeong High, a terrible teacher who took out her anger on students because her stocks had fallen.
+
+She was seen hitting a student for not knowing how to solve a math problem but the student didnt know how. Which she beats him but this was due to her stocks fell. Due to this, she was targeted by Hwajin for flawed teaching and is forced to be a temporarily student as punishment. She refused but Hwajin threatens her that the ministry of education will punish them. Then afterwards, he was given a "mid term exam" where the most points is to ask forgiveness to the students they harrassed.
+
+The next day, before how she sees how much the students hates her and the others, she submitted his resignation letter in front of Hwajin, saying that she had hurt the students too much and doesn't dserived to be a teacher. However, she has been forgiven and passed with 62 points as the students forgave her despite her anger issues which she wept a little.

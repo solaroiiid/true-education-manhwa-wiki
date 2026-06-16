@@ -1,0 +1,3 @@
+Appearing in s2, ep.143. Euychan, known as "Crazy Ogre" is from Yongmyung High as a sophomore. Sungwon is from Yukwang High as a freshmen.
+
+They joined together and wants to be a member of Hyeontae's group. So as an interview, they beat a man with debt but they soon stop as he was going to die. However, they were motivated to continue through Hyeontae's words but he let Sera have the final blow. When Sera betray them and with Hanlim present, both members were easily defeated.

@@ -1,0 +1,3 @@
+Appearing in s2, ep.130. Consists of his father and mother.
+
+His mother is currently unseen. One day, his father, while was drunk and angered that his son attempting to study instead of finding a job. Even then, they don't have the money for it. When Hwajin told him that he is going to a military academy which is much more cheaper and free such as free tutition, he calms down and tells him to work hard.

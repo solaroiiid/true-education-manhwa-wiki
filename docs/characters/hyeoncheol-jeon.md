@@ -1,0 +1,5 @@
+Appearing in s1, ep. 28. Under 14. A deliquent. A student of Hyeonjin Middle School. He is 13.
+
+He appears to be swearing loudly while sitting while an elderly hears it which he considered rude. Hyeoncheol respond by assaulting him and has no fear of the police since he is underage. Additionally, assaults were committed at school under the guise of sparring, or boxing practice against Sehoon. He and Duyong discuss of how this was their last year to commit murder withou punishment.Then he steals a car with his friends and drives to the East Sea as Miyang wanted to go. This result in him causing a car accident. He tries to run away, but he gets caught by Hwajin and Hanlim, and at school, he and his friends hang up a sign that says I am a car thief.
+
+After this, he came first to Gimcheon Juvenile Prison with Duyong and then sees the rest of his friends in jail too. He ends up being beaten all over with a ball . In episode 34, he is happy after being released from prison.
