@@ -1,0 +1,11 @@
+Appearing in s1, ep.35. Seungyeon High School basketball team leader. A top scorer. Older sister of Jayeon. Has a mother.
+
+Two years prior, she believes Eunha will threaten her career. So a year later, she forces her coach to isolate Eunha.
+
+Then when Jayeon told her of Eunha's retaliation, she bullies and isolates Eunha from the team. As an opporunity to get rid of Eunha as her skills threatens her career. Later were selected for the national teams. When Eunha attempts to expose their bullying, they they lock her in a locker. After a play against Kangyang University and an interview, they meet with Eunha whom they had locked in a locker and threatens again.
+
+Later, when Hanlim is coach, she wants Eunha to play but Suyeon kept insisting she doesn't as it was their "system" However, Hanlim stops her and forces her way to allow Eunha to play. She and her sister beats Eunha and Suyeon forces her to retire. However, Eunha refuses which they were going to break her her arm until Hanlim appears. She tried to disguise the situation but Hanlim punches her. They tried to gang up on Hanlim but were subdued.
+
+In retaliation, they make a fake beating shown on Suyeon's face and spread it to the internet to take down Hanlim. However, the contents of Jayeon's group chat with Eunha were made public and Hanlim revealed her true self. As she listens to the news, she gets anxious as she was blamed for the whole situation. She eventually abandons her by forcing her to create an apology video that it was all Jayeon's fault. The next day, Hanlim forces her to play a 1vs1 basketball game with Eunha to prove she was inferior to Eunha.
+
+When she is defeated by Park Eun-ha 4 to 4, she grabs Eunha's hair and tries to knock her down, but Eunha, threw her to the floor. She reveals she wanted to be an equal with her but seeing her betrayel even in basketball, she found her to be trash. In the end, she was stripped of her national team by along with her younger sister. In addition of going to juvie for assault. In her room, as she listens, she angrily cries in despair.

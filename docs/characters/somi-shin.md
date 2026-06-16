@@ -1,0 +1,5 @@
+Appearing in s1, ep.41. A student of Sillabyeol Elementary.
+
+At the end of episode 41, she appeared receiving corporal punishment by Sanghee while holding a board with the words "I am a discriminator" written on it, and is ostracized by Sanghee and her fellow classmates. Even after Hwajin appeared, she actively objected and rebelled against Sanghee's beliefs. Afterwards, she was accused of being a discriminator, bullied, and suffered all kinds of indignities such as revealing her family history, but she showed a maturity, showing a firm determination to say what she had to say even in front of ideas and groups that she thought were wrong.
+
+Moreover, even while physical fights broke out in the feminist vs anti-feminist commotion, she never once appeared to retaliate against students. After the commotion calms down, with Hwajin's encouragement, she reveals her views on gender equality. In the process, she brings up the story of her parents' divorce. Later, when Sanghee left, she showed her mature side by writing a letter with all of her classmates, saying, "Thanks to you, teacher, I thought a lot about equality. Thank you."

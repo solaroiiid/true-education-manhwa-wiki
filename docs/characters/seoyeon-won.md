@@ -1,0 +1,5 @@
+Appearing in s1, ep.50. She is Dongcheol's wife.
+
+In the past, a sophomore at high school, got pregnant by Dongcheol. They were expell for their relationship. Her child abuse stems from being abused herself from her step father since childhood. However, she also resented her child, much like Dongcheol as she wasted her young life. So she caused child abuse to Minseo but Dongchul does it instead of her.
+
+As soon as she entered the house, Dongcheol glared at her and threw a beer can at her and yelled at her to get out, and she apologized for doing something wrong.. The next day, they seem to have a normal day. As she is with Minseo, he talks about Hwajin and how he bought the car for him. She smashed Go Min-seo's RC car and lied and said that Minseo broke it while playing with it. Later, Minseo caused a accident at the daycare, and she looks at Minseo with a scary expression. At the end, it is revealed Minseo was abused by waterboarding Minseo, and her husband beats her up for it. Afterwards, Hwajin reported it, and she did not say anything during the police investigation, and was sentenced to 1 year and 4 months in prison at trial six months later.

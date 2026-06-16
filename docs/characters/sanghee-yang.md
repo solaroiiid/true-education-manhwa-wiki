@@ -1,0 +1,3 @@
+Sanghee Yang is a former major antagonist in season 1 of Get Schooled. She is an extreme radical feminist as she eventually believed in those belief from other like minded individuals. Thus, she intends to spread those beliefs to the children she teaches at.
+
+Later, she appeared teaching students about gender equality, not extreme feminism, and not only returned to teaching, but was completely rehabilitated.

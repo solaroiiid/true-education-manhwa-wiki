@@ -1,0 +1,3 @@
+Appearing in s1, ep.31. 20yrs old. His crime was aggravated robbery and he was sentenced to three years and two months.
+
+He is in charge of the room of Jiwung's group. He greets them and orders them to recite the crime. When Jiwung does not speak, he gets angry and threatens him with Suntong. Then, after Gyeom educates Jiwoong, he, along with Suntong and Gyeom, harasses Jiwung and his gang. In episode 34, he was disappointed when Jiwung and his friends were released from prison. In the epilogue, he greets Jiwung as he came back again.

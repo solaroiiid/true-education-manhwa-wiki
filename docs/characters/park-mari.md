@@ -1,0 +1,13 @@
+Appearing in s2, ep.185. 17 years old. Intel manager and "WreckTRPAChallenge" Ringleader.
+
+Two weeks prior to TRPA challenge, she was during a meeting and shuts down Changho who was complaining Yungyeol's direction and states she will destroy TRPA. Thus she creates the "TRPA Challenge," inspired by Sorin Sim and have others to do it with promise of 10 million won.
+
+She and two others particpated in a "TRPA Challenge" in which they vandalized their cars and film it on social media. Once gotten their attention however, the other two wanted to stop as it was going too far but she forces them. They attack Sera in restroom but was easily stopped. Their mask are uncovered in which Mari attempts to blame the other two, leading to an argument. Hwajin stops their aruging and forces Mari to show her phone of the bounty on TRPA.
+
+Hwjin suspects they are a part of GY and tells her and the others to strip but found no GY tattoo. So they were sent to the police but with Yongyeol help, she leaves and enters his car. She explains that testing the waters with Hwajin was a success while she grabs specizalied nail ornaments with "GY" given by Yungyeol. Later, she sees her plans falter as people stops participating in challenge. However, she devise a new plan that people have to injure TRPA's helped victims instead of TRPA themselves.
+
+Back at HQ, she was at the pool relaxing thinking her plan is succeeding. However, when TRPA's associates help destroy the challenge, she simply gives up without concern; finding it fun but was soon shocked that Hwajin arrived at their HQ. She was ready to leave as she sees Changseo too arrogant in winning but witness his key plan against Hwajin. She hides in a cupboard as she sees Hwajin beats Changho. She thought they left but sees Hwajin coming closer to her location. However, he didn't noticed her. She then called the police as a distraction.
+
+Afterwards, she was with Yungyeol and hears his plan of taking GY for himself. She wonders if that is possible and if it is the wrong choice to make Hwajin a bigger enemy than before.
+
+Much later, Yungyeol, Taeyang and her watches all of the branch managers in one place and she is ordered to detonate an explosion. They enjoyed but she saw TRPA took down the fire, which she complained they should had used a bomb. Then Hwajin shows up and confronts her and the others. She briefly escapes but Hwajin was also there which shocked her. However, with Secretary Kim, she escaped Hwajin.

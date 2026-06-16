@@ -1,0 +1,3 @@
+Appearing in s1, ep.35. Seungyeon High School basketball team coach. A male coach.
+
+After seeing the basketball skills of Eunha, whom he had scouted at the suggestion of Suyeon, he tried to make her a starting player. However, Suyeon, who felt anxious, forces her to isolate Eunha by blackmailing him that he had received bribes from the parents of students who would play for the starting team, and thus hindered Eunha's participation. It is presumed that he was arrested along with the two sisters.

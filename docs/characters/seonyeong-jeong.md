@@ -1,0 +1,7 @@
+Appearing in s1, ep.16 .A class 2-4, homeroom english teacher for Soyeon's Girl High. Hanlim's guiding teacher The actual victim of Yeri Han.
+
+A homeroom teacher where the actions of Yeri and her gang treats her like a ghost by the students. She admires her senior teacher, Yeongsu Go, but is greatly shocked by his death and becomes afraid of her students. She took over his role.
+
+At the present, she became Hanlim's guide as she introduced her to the students but is quite scared when Hanlim picks a fight with Yeri. Over a couple of days she believes Yeri was disciplined due to Hanlim. In ep.19, when she sees Yeri crying in front of her house, her heart weakens and she tries to comfort Yeri and let her come into the house, but she is caught by Yeri and her gang, who are convinced that she was the one who alerted the TRPA, and is in danger of being killed.
+
+Just then, Hanlim was outside, foreseeing Yeri's plan. Seonyeong was going to lie to Hanlim in that Yeri was there for counseling but Yeri attempts to kill her as she thinks she was the one who tip her off to TRPA. Sohyeong stops Yeri which saved Seonyeong. After Yeri runs away, Seonyeong treats Sohyeong's wound while hearing from her about Yeri's past. Afterwards, while trying to subdue Yeri, who jumped from a building, Seonyeong gets hit, but Hanlim saves her. After hearing Seonyeong's story, she tries to stop Yeri from trying to kill Hanlim, but nothing has changed at all. When the police show up, seeing Yeri shamelessly pretending as a victim, she reveals the truth.

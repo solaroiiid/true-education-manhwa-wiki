@@ -1,0 +1,5 @@
+Appearing in S2, Ep. 236. He is a top bodyguard and former soldier of 707th Specials Group. His fighting style is Krav Maga.
+
+In the past, Yongyeol's family trained him to be a top bodyguard since he was a child. Had choked Yongyeol under orders from the family. So he was sent to military as an enlisted in 707th Special Group. He knows both Hwajin and Hanlim and had participated in a unknown war. Afterwards,
+
+He appears before Yungyeol and explains how TRPA stopped the fire. When Hwajin shows up, he fights him and revealed he was a former member of the specials group. During the fight, he messed up and is knocked out but briefly. He chases and pulls a gun to Hwajin to let Yungyeol go. He threatens Hwajin well as he reluctantly releases Yungyeol but Hwajin will fight him next time and leaves. Secreatry Kim then falters due to the bruise he recieved from Hwajin earlier.

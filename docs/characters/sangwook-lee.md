@@ -1,0 +1,7 @@
+Appearing in s1, ep. 54. Student of Gangyeong High.
+
+He suffered from school violence by Seonghak everyday. However, with the new school violence committee using lawyers and other pros, he used them and report the issue. Unfortunately, his report was graded as not severe as his bullies taunted him fort it. He attempts to commit suicide in his bathroom when his family found him in that state. He wakes up alive and want to die again but stops when he gets a message of Hanlim beating up Seonghak. He goes back home happy but was ambushed by Seonghak however Hanlim was also there.
+
+After Hanlim punishes him, he gets a more sincere apology from him. In the third section, he and the other bullied victims attacks Seonghak and his gang.afterwards, with Hanlim's help, he requests a retrial. During this, Junbin propose the opposite belief/perspective of that Sangwuk only wanted revenge for exampled. Which made him throw up from the emotional damage he recieved. He leaves when Hwajin bumps into him. He returns to explain that Seonghak was only looking for pleasure in beating him, not due to his enviroment. Then he received a note that Seonghak is forced to transfer which he cried of joy.
+
+In season 2, he was targeted and beaten by Mari's TRPA challenge. Was hospitalized but assures Hwajin to not be concern that they were assaulted due to the challenge.
