@@ -1,0 +1,3 @@
+Appearing in s1, ep.1. A sophomore student. A bullied victim. His father worked as a janitor at a government but was fired due to Junhyeong's scheming.
+
+He was originally a good person who was good at studying and had a good personality. He beat up Junhyeong for being disrespectful to a teacher but this marked as an enemy. After being harassed so much by Junhyung's group, he committed suicide by jumping from his apartment.

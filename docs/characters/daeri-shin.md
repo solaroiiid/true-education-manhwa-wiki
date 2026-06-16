@@ -1,0 +1,5 @@
+Appearing in s1, ep.42. Somi's father
+
+He was so shocked that he stopped going to work after seeing Somi's diary of being bullied; holding off the IPO at his company for 3 days, but when the manager asked him why he was upset because he wanted to get fired from the company, he said, "I have something more important than the company." He quits his job and goes to school. As he observes the process of discrimination taking place in the classroom, he is shown to be trembling and tolerating it with reason.
+
+Then, after seeing Somi being forced to apologize, he goes into the classroom and makes a formal complaint to Sanghee, but he ends up hearing shameful remarks. As Sanghee revealed his history in front of students, divorced his wife, and was raising Somi alone. He gets extremely angry at this and tries to hit Sanghee, but Hwajin stops him and Hanlim slaps Sanghee instead. From then on, he seemed to have left the situation to the Ministry of Education and returned to the company. According to Somi's comments, he divorced when she was in the first grade of elementary school.

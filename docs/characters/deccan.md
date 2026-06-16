@@ -1,0 +1,5 @@
+Deccan is a major character of "Hanlim Gym (Webtoon)" but a minor antagonist in season 1 of Get Schooled. He is the head of the Kuun Mongolian who rule over the high schools in Incheon, South Korea.
+
+Deccan is a large and wide teenager that looks like an adult. He his a sharp, bricked face and a thin moustache. His hair is black and is almost a buzz cut and along side his known golden yellow tinted sun glasses. His outfit is a brown suit and tie with white dress shirt. Having black shoes and belt. When a bit younger, he didn't have facial hair.
+
+In the past, he came across a horse called "dark horse." Infamous for its untameness. However, he was able to subdue it with kicks. A foreigner saw this and called him "Khan," from Genghis Khan. Since then, with his natural talent for fighting, he integrated most of the fighters in the high schools of Incheon in 7 years.

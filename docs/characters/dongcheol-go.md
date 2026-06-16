@@ -1,0 +1,15 @@
+Dongcheol Go is a former minor antagonist in season 1 of Get Schooled. He was a child abuser of his own child, Minseo Go, however there were mysterious reasons from his past as Hwajin Na intervenes in his life.
+
+Has blond hair and piercings. When he attempts to rehabiliate himself, he goes back to a normal apperance. with his hair being brown.
+
+In the past, as a senior in high school, he took responsiblity for Seoyeon's pregnancy and worked hard but when his old classmates saw him like this, he realized he screwed over his life due to the early pregnancy. When he saw Seoyeon going too far in hitting Minseo, he takes in charge of hitting Minseo if she ever gets angry.
+
+Met Hwajin and takes Minseo forcefully. When Hwajin implies he is a child abuser, he became defensive and abrasive which Hwajin knocks him out in one shot. He waks up the next day and is angry. He hears loud music next door and goes over but is shocked to see it was Hwajin. He was punished by Hwajin if he ever uses his loud voice to punish Minseo. After multiple times, he got sick of it and wants to kill Hwajin but he was also outside. Hwajin then forces him to play with Minseo like a regular father. First by playing catch and end ends up spending time with Hwajin and Minseo at a toy store, buying RC cars and eating meat.
+
+As he goes home carrying Minseo on his back, he hears from Hwajin that he is the one that Minseo relies on the most and that is why he is safe from Hwajin's wrath. So he gives him one more chance. Inside, he was looking at Minseo's baby picture with a calm expression until he sees Seoyeon, his wife, arrived. Due to the truth of the abuse, he gets so angry that he forgot about Hwajin's warning. The next day, he went to work at the architecture and interior design company that Hwajin had introduced him to. At night, he and Hwajin have a small talk about his past.
+
+It seems like he started thinking a lot about all kinds of things while raising his son Minseo during his senior year of high school. When Seoyeon waterboarded Minseo, he gets so angry that he assaults and knocks her out. He is stopped by Hwajin, who hurriedly appears, and after going to the emergency room, he obediently admits his guilt during police interrogation, explains the whole story, and is sentenced to six months in prison and one year of probation six months later. Afterwards, he secretly appears at Minseo's orphanage to check on Minseo's well-being. He sheds tears of apology for Minseo who follows him, and promises to pick Minseo up later if he becomes a good person and is allowed into the country.
+
+He reappeared as a full-time employee of the special interior design company where he worked for a while. After completing the interior design of the large building, he received a commemorative bonus from Jincheon, and when he returned from the detention center, he was complimented on how much he had changed as a person. He soon receives documents from the family court from Hwajin, who came to visit him.
+
+Afterwards, his restraining order was lifted, allowing him to live with Minseo again.

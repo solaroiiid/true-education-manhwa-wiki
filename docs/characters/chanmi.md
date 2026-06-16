@@ -1,0 +1,3 @@
+Appearing in s1, ep.42 A teacher of Sillabyeol Elementary.
+
+She is a teacher who teaches the same way as Sanghee, and she tells Sanghee via messenger that their education site has been leaked. After the feminist vs anti-feminist uproar in the second class of the third grade, she is seen secretly watching and biting her fingers for fear that their presence would be discovered. It appears that Chami reported the situation to a secret feminist organization. When Sanghee is expelled from her group and leaves her school, she secretly calls Sanghee a traitor. Then when the Ministry of Education issued a warning, Chanmi was anxious.

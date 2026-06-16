@@ -1,0 +1,3 @@
+Appearing in s1, ep.96. The no. 2 of Tacheon Gang. Also a member of G.Y Incheon Branch. Been in the streets for 10 years.
+
+He and his boys were up against Hanlim as he tells his boys to not underestimate her since she is a woman. He was impressed of her skills when she sliced all of his boys but underestimate her as he believes she won't kill due to her profession. Hanlim then sliced his neck but it was a feint which Daeyu fell down in fear.
