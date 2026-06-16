@@ -1,0 +1,9 @@
+Appearing in s1, ep.81. An elementary teacher of class 5-2 at Hyeonjung Elementary. Has 14 years of teaching experience
+
+In the past, Woojin Lee got in an argument between a classmate and both of their mothers bicker. Jiseon wanted both to apolgoize but the mother don't want to. In the end, Woojin's mother lost the agrument which she irrationally put the blame on Jiseon. Thus she was targeted by her numerous times as an evil person. Was seen trying to sleep while Woojin's Mother kept messaging her.
+
+When TRPA arrived, she screamed and fainted. She is rushed to the hospital by Hwajin and Hanlim, and is diagnosed with panic disorder due to stress. She falsely admits all of the charges against her and waits for her resgination. She shows up when the princiapl explains the teachers won't need to be inferior to the parents by not needing to answer their calls. She then meets with Hanlim and talk. Later when it was confirmed she hold no malicious crimes, she asked the TRPA to not crimincally punished Woojin's mother as it would spell disaster life for Woojin.
+
+Then at school, Woojin was misbehaving which she stops him but with kindness instead. However, a student hits Woojin for being rude to the teacher just as Woojin's mother came and see her close to her son. At the last parent day, when the parents had a huge fight with Woojin's mother, she tried to mediate them by saying to think about their children who were watching. When Woojin's mother was going to be arrested, she kneel down to the TRPA for one more chance so Woojin won't have a bad life.
+
+She is seen greeting Woojin's rehabilitated mother warmly in episode 111.

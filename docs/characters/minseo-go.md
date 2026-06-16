@@ -1,0 +1,9 @@
+Appearing in s1, ep.46. The son of Dongcheol Go. He is 6 years old.
+
+In the past, he attends a daycare center. He vomited blood and is called to the hospital by Miss Yu but Minseo was taken back to his house by his father. The blood was due to a liver rupture caused by his mother's beating. After that, he hasn't been at the daycare for a week. Then 3 or 4 months after that, he didn't show up until he and his father appeared in front of Miss Yu to take care of him again
+
+He runs into Hwajin at a convenience store. Due to his parents' extreme neglect, he is almost caught stealing, but Hwajin pays his foosd on his behalf. Afterwards, while eating snacks stolen from a corner of an alley, he is approached by Hwajin and asks what is going on, before running away. Luckily for him, Miss Yu appeared and slept next to her. After, he is taken back to his father with Hwajin. Then, forced by Hwajin, he has fun with his father and fell asleep during night time. Just as his mother arrived.
+
+Afterwards, he had an accident at a daycare center where he assaulted another child and was waterboarded by his mother and was on the verge of death. However, thanks to Hwajin's quick report, he stayed in the hospital and asked the teacher to find his mother and father, but he cried when he heard that he would not be able to see his mother and father for a while. Afterwards, he goes to an orphanage to stay, but when he discovers Dongcheol, who has come to secretly check on his child's condition, he runs to him, but after hearing Dongcheol ask him to wait until he becomes a good person and can raise Minseo in the country, he makes a promise.
+
+In season 2, was kidnapped by Changheo Seo to be used as a hostage against Hwajin. Later saved.

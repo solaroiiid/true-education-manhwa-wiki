@@ -1,0 +1,3 @@
+Appearing in s1, ep.102. The brother of Juhui. Has a father and mother. Was 7 but is now 10 three years later.
+
+Three years ago, he and his family arrived to Seongja church and was imprisoned there. He and the others were abused to work on a farm. Currently, he is taken care of by his sister only. He was starved for 3 days so he ate dog food when he was called up by Seongja to eat it instead of his sister. He was also alraedy brainwashed and was going to capture his sister. When Seongja was defeated, he was also captured but was too brainwashed. However, in the end, he leaves with his sister as his brainwashing was somewhat gone as Juhui affirms there was no devil in the first place. Is presumed a few months later, he is going to school like the other children.

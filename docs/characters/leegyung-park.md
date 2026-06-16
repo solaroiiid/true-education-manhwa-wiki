@@ -1,0 +1,3 @@
+Appearing in s2, ep.115. She is Yujeong's friend and a bully of Eunjin Kim
+
+She confrims to Yujeong she didn't leak the bullying photos. She posted a video falsely defending Yujeong Min that she was the one that did the bullying on the condition that she would set her up for a meal with her favorite idol, Chaha. However, she was threatened by Junbin that she will be criminally punished for false actions. She caved in and revealed the truth as Junbin recorded her.

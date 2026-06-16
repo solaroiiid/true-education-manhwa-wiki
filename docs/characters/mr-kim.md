@@ -1,0 +1,5 @@
+Appearing in season 1, ep. 1. Kyeongmin's teacher, 40s, a teacher who despite his benevolent appearance, is two faced as he doesn't do anything due the limitations as a teacher.
+
+Kyeongmin asked for his help to punish his bullies but, he out right scolded them only. His limit actions is because this was an order from the principal and vice principal who were frightened by the pressure from the Junhyung Ryu, a son of a member of the National Assembly. Thus he nor other teachers can't do anything. He sees Hwajin beating a student.
+
+However, when Hwajin allowed corporal punishment, he quickly took armed when everyone was hesitating, he took the initiative to pick up the billiard cue and is estatic of the quality of it and used to beat the students Afterwards, he beaten the students that bullied Kyeongmin.

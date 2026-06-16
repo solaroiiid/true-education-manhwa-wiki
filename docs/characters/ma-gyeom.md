@@ -1,0 +1,3 @@
+Gyeom Ma is a significant minor character in season 1 of Get Schooled and To Not Die, and a main supporting character in Juvenile Prison. He is infamous for killing seven students that subjected him to terrible bullying
+
+He was severly bullied by seven students at his high school and murdered them to preserve his life, leading to his arrest and incarceration at Gimcheon Youth Detention Center with a 20 year sentence. He will be moved to an adult prison when he turns 23.

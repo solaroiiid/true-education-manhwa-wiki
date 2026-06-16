@@ -1,0 +1,5 @@
+Appearing in s1, ep.47 A daycare teacher at Minseo's daycare, she was interested in Minseo's unusual condition.
+
+When Minseo didn't come to her daycare one day, she went to Minseo's house herself, but the door wouldn't open and she ended up hearing Minseo's father's assault. She eventually reported it to child protective services, but it was never properly addressed. Three or four months later, Minseo's father, who they met again in the park, asked for her to take care of Minseo again and threatening her for report to the protective service. Since then, it appears that he is paying attention to Minseo's family issues and taking care of him until the end. She meets and even asks Hwajin to help her. Then she secretly followed him to check on the situation.
+
+At the end, he carefully tells Minseo, who is in the hospital, that he will not be able to see his parents right away, and when she sees Minseo crying at that fact, she holds back her tears

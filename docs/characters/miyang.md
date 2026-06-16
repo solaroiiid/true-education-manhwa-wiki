@@ -1,0 +1,3 @@
+Appearing in s1, ep.28. A member of Jiwung's friend group. A student of Hyeonjin Middle School. She is 13.
+
+She upload the video of Hyeoncheol assaluting an eldery and is excited of the views. They leave while not caring about Sehoon. She wanted to go to the beach due to her social media. Hyeoncheol stole a car for them and soon causes a car accident, and tries to run away, but Hwajin and Hanlim catch her, and at school, she and her friends hang up a sign that says, "I'm a car thief." After this, she comes to Cheongju Women's Prison, where Yeri is, before the other girls. She then warns that she will be scolded if she cries, as the other girls she has just come to start crying. Is presumed she and the other girls were released.

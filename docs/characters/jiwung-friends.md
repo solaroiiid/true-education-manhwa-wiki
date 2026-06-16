@@ -1,0 +1,5 @@
+Appearing in s1, ep.29. Consists of the remaining friends besides Hyeoncheol, Miyang, & Duyong. This remaining are two boys (one with a red hoodie) and two girls (one in ponytail).
+
+Except for Jiwung, they were bullying Sehoon and sees TRPA is after them. In their HQ, they discuss about TRPA while the ponytail girl wanted some expensive shoes. Afterwards, they joined forces with Jiwung to rob a store, but they were caught by the store owner. However, they were going to be free until Hwajin shows up. When Hwajin subdues Jiwung, the rest of them were captured by Hanlim.
+
+The boys were sent to Gimcheon Juvenile Prison while the girls were sent to Cheongma Girl's Prison. The boys suffered from Dongsu Oh Suntong Shim while the girls were frigthten by Yeri Han. In episode 34, they were all released after truely learning their lesson. Presumbably the girls as well.
