@@ -2,4 +2,10 @@
 
 This section contains character pages for the True Education manhwa.
 
-Character pages will be listed here automatically.
+## Character List
+
+- [Gayoon Choi](gayoon-choi.md)
+- [Gu Sera](gu-sera.md)
+- [Hanlim Lim](hanlim-lim.md)
+- [Hwajin Na](hwajin-na.md)
+- [Hyun Daniel](hyun-daniel.md)
